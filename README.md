@@ -1,1 +1,1 @@
-# The-Sims-4-WickedWhims-v186.5-v184e-
+<img src="https://i.playground.ru/p/MbKUHYamxq2IyniGVdAiOg.png?760xauto" width="760" height="428" loading="lazy" decoding="async" alt="">
